@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ballingout
+- 👀 I’m interested in C++, JavaScript, Python
+- 🌱 I’m currently learning, Python
+- 💞️ I’m looking to collaborate on **EDUACATIONAL** malware, databreaches, ect.
+- 📫 How to reach me @ballingout on telegram
+- 😄 Pronouns: rich
+- ⚡ Fun fact: I am looking to collaborate with anyone who is looking to take things to a bigger step and more serious things.
